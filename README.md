@@ -1,0 +1,1 @@
+# Ativ_fix_LG_06A_loop_Maria-Clara
